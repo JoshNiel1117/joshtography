@@ -1,1 +1,1 @@
-My Photgraphy Portfolio 
+My Photography Portfolio 
