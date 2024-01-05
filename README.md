@@ -1,2 +1,2 @@
 # joshtography
-Photography Portfolio
+Just my personal/professional Photography Portfolio ^_^
